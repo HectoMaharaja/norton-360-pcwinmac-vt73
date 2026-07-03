@@ -1,4 +1,4 @@
-# 
+# Instant Norton 360 templates for Mac OS | Advanced Norton 360 templates for PC Windows. Featuring game mode and quarantine management — optimized for maximum performance on every platform.
 
 
 
